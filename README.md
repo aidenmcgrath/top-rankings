@@ -32,6 +32,6 @@ Today we'll be going over some of my favorite pringles which marks a total of 5 
 
 Go out and and find your new favorite pringles and be sure to look out for more Top Rankings.
 
-## Header 2 Behind Top Rankings
+## Behind Top Rankings
 
 Top Rankings is made and designed by a 15 year old boy by the name of Aiden McGrath. Top Rankngs is his way to get his voice out in the world and give people something to enjoy and try. With Top Rankings, Aiden hopes for people to see his website and try the thins being ranked, create their own rankings, or even create their own wesbite to interact with other people. Top Rankings is used a way for people to come and interact with multiple categories from food to movies. Thank you for visiting Top Rankings.
